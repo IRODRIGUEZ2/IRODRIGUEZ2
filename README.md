@@ -9,4 +9,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me:  664-541-1155
 - 😄 Pronouns: El
 - ⚡ Fun fact:  ei
--->
